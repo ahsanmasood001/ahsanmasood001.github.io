@@ -1,2 +1,2 @@
 # ahsanmasood001.github.io
-I am a web developer and Digital Marketer
+I am a Digital Marketer and web developer
